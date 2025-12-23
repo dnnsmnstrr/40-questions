@@ -1,5 +1,5 @@
 1. What did you do this year that you’d never done before?
-2. Did you keep your new year’s resolutions?
+2. Did you stick to your yearly theme?
 3. Did anyone close to you give birth?
 4. Did anyone close to you die?
 5. What cities/states/countries did you visit?
